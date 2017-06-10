@@ -2,7 +2,7 @@
 
 ## Casamento Anna Cecilia & Thiago
 
-Olá! Vamos nos casar e gostaríamos de contar com sua presença. Eis as coordenadas:
+Olá! Depois de cinco anos de namoro vamos nos casar e queremos contar com sua presença! Eis as coordenadas:
 
 ### Quando?
 
@@ -24,7 +24,7 @@ Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussa
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
+Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los. Além disso queremos que essa cerimônia seja um motivo alegre para reunirmos nossas famílias e amigos mais íntimos.
 
 ![Image](http://i.imgur.com/JF5rfDl.png)
 
@@ -44,7 +44,7 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Onde encontro a lista de presentes?
 
-Não há. Pedimos que não haja presentes de qualquer tipo. É desnecessário e os noivos gostam de viajar com pouca bagagem.
+Não há. Seu comparecimento é o presente mais desejado dos noivos. Pedimos apenas que curtam a viagem e voltem ao Brasil com boas lembranças.
 
 ### O que levo na bagagem?
 
@@ -69,3 +69,11 @@ Por aí.
 ![Image](http://i.imgur.com/PRalWiR.jpg)
 
 ![Image](http://i.imgur.com/e62V0et.jpg)
+
+![Image](http://i.imgur.com/nxUT6RS.jpg)
+
+![Image](http://i.imgur.com/LS4Yp5k.jpg)
+
+![Image](http://i.imgur.com/n9BSa3I.jpg)
+
+![Image](http://i.imgur.com/FQ8ty0o.jpg)
