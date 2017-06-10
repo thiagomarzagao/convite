@@ -6,11 +6,7 @@ Olá! Vamos oficializar o relacionamento e gostaríamos de contar com sua presen
 
 ### Quando?
 
-6/1/2018. Quando tivermos um horário firme informaremos aqui.
-
-### A data é firme? Posso comprar minhas passagens?
-
-Sim. Pode.
+6 de janeiro de 2018.
 
 ### Onde?
 
@@ -20,9 +16,15 @@ Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de ~
 
 Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no município de Mealhada. (Lá em Portugal a divisão administrativa é: freguesia ⊂ município ⊂ distrito).
 
-### Pq tão longe?!
+![Image](http://static.panoramio.com/photos/large/130193712.jpg)
 
-Os avs
+Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a ~4km da igreja).
+
+![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Palace_Hotel_do_Bussaco.JPG/1200px-Palace_Hotel_do_Bussaco.JPG)
+
+### Pq tão longe?
+
+Os avós maternos da noiva nasceram em Aveiro. Infelizmente já se foram e não poderão testemunhar a cerimônia
 
 You can use the [editor on GitHub](https://github.com/thiagomarzagao/convite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
