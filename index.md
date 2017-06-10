@@ -54,13 +54,11 @@ Roupas de frio. Em janeiro a temperatura em Aveiro costuma variar entre 6,3°C e
 
 Por aí.
 
-![Image](http://i.imgur.com/Z62AgnE.jpg)
+![Image](http://i.imgur.com/yHdGJmi.jpg)
 
 ![Image](http://i.imgur.com/O2Qc9EF.jpg)
 
 ![Image](http://i.imgur.com/9GnfLdI.jpg)
-
-![Image](http://i.imgur.com/yHdGJmi.jpg)
 
 ![Image](http://i.imgur.com/pJEFlNC.jpg)
 
