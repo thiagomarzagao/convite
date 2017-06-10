@@ -24,11 +24,13 @@ Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussa
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los. Além disso queremos que essa cerimônia seja um motivo alegre para reunirmos nossas famílias e amigos mais íntimos.
+Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
 
 ![Image](http://i.imgur.com/JF5rfDl.png)
 
 ![Image](http://i.imgur.com/1buw9Lh.png)
+
+Queremos que essa cerimônia seja um motivo alegre para reunirmos nossas famílias e amigos mais íntimos.
 
 ### Quais as opções de hospedagem?
 
@@ -40,7 +42,7 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Qual o prazo p/ confirmar presença?
 
-30 de janeiro de 2017. Envie um e-mail p/ tmarzagao@gmail.com.
+30 de janeiro de 2017. Envie um e-mail p/ tmarzagao@gmail.com
 
 ### Onde encontro a lista de presentes?
 
