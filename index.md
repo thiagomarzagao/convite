@@ -2,7 +2,7 @@
 
 ## Casamento Anna Cecilia & Thiago
 
-Olá! Vamos oficializar o relacionamento e gostaríamos de contar com sua presença. Eis as coordenadas:
+Olá! Vamos nos casar e gostaríamos de contar com sua presença. Eis as coordenadas:
 
 ### Quando?
 
@@ -24,11 +24,23 @@ Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussa
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e servem até hoje de exemplo para seus filhos e netos. Escolhemos Aveiro como uma forma de homenageá-los.
+Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
 
 ![Image](http://i.imgur.com/JF5rfDl.png)
 
 ![Image](http://i.imgur.com/1buw9Lh.png)
+
+### Quais as opções de hospedagem?
+
+Coimbra fica a apenas 30km de distância e lá há [diversas opções de hospedagem](https://www.tripadvisor.com/Hotels-g189143-Coimbra_Coimbra_District_Central_Portugal-Hotels.html).
+
+Para quem preferir ficar em Mealhada uma das opções é o próprio [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal), onde acontecerá o almoço. O hotel, com arquitetura e decoração pós-manuelinas, é cercado pela Mata Nacional do Bussaco, plantada pela Ordem dos Carmelitas Descalços no começo do século XVII. Para reservas, contacte a Sra. Rosa Trindade (fo.bussaco@almeidahotels.pt, +351-231-937-970) e informe que está indo p/ o nosso casamento (há um desconto p/ convidados). É bom reservar tão logo quanto possível, pois a disponibilidade de quartos é limitada.
+
+Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hoteluso.com/), alguns B&Bs e possivelmente AirBnB.
+
+### Qual o prazo p/ confirmar presença?
+
+30 de janeiro de 2017.
 
 You can use the [editor on GitHub](https://github.com/thiagomarzagao/convite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
