@@ -10,9 +10,9 @@ Olá! Vamos oficializar o relacionamento e gostaríamos de contar com sua presen
 
 ### Onde?
 
-![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Aveiro_-_Portugal_%2816885263852%29.jpg/1200px-Aveiro_-_Portugal_%2816885263852%29.jpg)
-
 Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de ~80 mil almas, conhecido pelos barcos moliceiros (esses barcos coloridos aí da foto).
+
+![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Aveiro_-_Portugal_%2816885263852%29.jpg/1200px-Aveiro_-_Portugal_%2816885263852%29.jpg)
 
 Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no município de Mealhada. (Lá em Portugal a divisão administrativa é: freguesia ⊂ município ⊂ distrito).
 
@@ -24,7 +24,11 @@ Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussa
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Infelizmente já se foram e não poderão testemunhar a cerimônia
+Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e servem até hoje de exemplo para seus filhos e netos. Escolhemos Aveiro como uma forma de homenageá-los.
+
+![Image](http://i.imgur.com/JF5rfDl.png)
+
+![Image](http://i.imgur.com/1buw9Lh.png)
 
 You can use the [editor on GitHub](https://github.com/thiagomarzagao/convite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
