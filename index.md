@@ -10,7 +10,7 @@ Olá! Vamos nos casar e gostaríamos de contar com sua presença. Eis as coorden
 
 ### Onde?
 
-Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de ~80 mil almas, conhecido pelos barcos moliceiros (esses barcos coloridos aí da foto).
+Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de 78 mil almas, conhecido pelos barcos moliceiros (esses barcos coloridos aí da foto).
 
 ![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Aveiro_-_Portugal_%2816885263852%29.jpg/1200px-Aveiro_-_Portugal_%2816885263852%29.jpg)
 
@@ -18,13 +18,13 @@ Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no 
 
 ![Image](http://static.panoramio.com/photos/large/130193712.jpg)
 
-Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a ~4km da igreja).
+Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a 3,8km da igreja).
 
 ![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Palace_Hotel_do_Bussaco.JPG/1200px-Palace_Hotel_do_Bussaco.JPG)
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
+Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
 
 ![Image](http://i.imgur.com/JF5rfDl.png)
 
@@ -40,40 +40,32 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Qual o prazo p/ confirmar presença?
 
-30 de janeiro de 2017.
+30 de janeiro de 2017. Envie um e-mail p/ tmarzagao@gmail.com.
 
-You can use the [editor on GitHub](https://github.com/thiagomarzagao/convite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+### Onde encontro a lista de presentes?
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files
+Não há. Pedimos que não haja presentes de qualquer tipo. É desnecessário e os noivos gostam de viajar com pouca bagagem.
 
-### Markdown
+### O que levo na bagagem?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Roupas de frio. Em janeiro a temperatura em Aveiro costuma variar entre 6,3°C e 14,4°C. Neve e temperaturas negativas são possíveis.
 
-```markdown
-Syntax highlighted code block
+### Por onde andam os noivos?
 
-# Header 1
-## Header 2
-### Header 3
+Por aí.
 
-- Bulleted
-- List
+![Image](http://i.imgur.com/Z62AgnE.jpg)
 
-1. Numbered
-2. List
+![Image](http://i.imgur.com/O2Qc9EF.jpg)
 
-**Bold** and _Italic_ and `Code` text
+![Image](http://i.imgur.com/9GnfLdI.jpg)
 
-[Link](url) and ![Image](src)
-```
+![Image](http://i.imgur.com/yHdGJmi.jpg)
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+![Image](http://i.imgur.com/pJEFlNC.jpg)
 
-### Jekyll Themes
+![Image](http://i.imgur.com/YfajyDs.jpg)
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/thiagomarzagao/convite/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+![Image](http://i.imgur.com/jXXBGGo.jpg)
 
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+![Image](http://i.imgur.com/PRalWiR.jpg)
