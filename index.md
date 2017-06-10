@@ -1,6 +1,28 @@
 ![Image](http://i.imgur.com/mNJ2wxf.jpg)
 
-## Welcome to GitHub Pages
+## Casamento Anna Cecilia & Thiago
+
+Olá! Vamos oficializar o relacionamento e gostaríamos de contar com sua presença. Eis as coordenadas:
+
+### Quando?
+
+6/1/2018. Quando tivermos um horário firme informaremos aqui.
+
+### A data é firme? Posso comprar minhas passagens?
+
+Sim. Pode.
+
+### Onde?
+
+![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Aveiro_-_Portugal_%2816885263852%29.jpg/1200px-Aveiro_-_Portugal_%2816885263852%29.jpg)
+
+Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de ~80 mil almas, conhecido pelos barcos moliceiros (esses barcos coloridos aí da foto).
+
+Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no município de Mealhada. (Lá em Portugal a divisão administrativa é: freguesia ⊂ município ⊂ distrito).
+
+### Pq tão longe?!
+
+Os avs
 
 You can use the [editor on GitHub](https://github.com/thiagomarzagao/convite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
