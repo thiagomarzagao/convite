@@ -2,8 +2,6 @@
 
 ## Casamento Anna Cecilia & Thiago
 
-Olá! Depois de cinco anos de namoro vamos nos casar e queremos contar com sua presença! Eis as coordenadas:
-
 Olá! Depois de cinco anos de namoro, primeiro na ponte aérea São Paulo-Columbus e depois na ponte aérea São Paulo-Brasília, vamos nos casar e queremos você na cerimônia.
 
 ### Quando?
