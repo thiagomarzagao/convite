@@ -56,9 +56,9 @@ Roupas de frio. Em janeiro a temperatura em Aveiro costuma variar entre 6,3°C e
 
 Chegaremos em Portugal dia 31/12 e vamos passear um pouco pelo país antes do casamento. Quem quiser se juntar a nós será muito bem-vido!
 
-31/12/17-03/01/18: Lisboa (Ibis Lisboa Liberdade)
-03/01/18-05/01/18: Coimbra (Ibis Coimbra Centro)
-05/01/18-06/01/18: Luso (Grande Hotel de Luso)
+31/12/17-03/01/18: Lisboa (Ibis Lisboa Liberdade) <br>
+03/01/18-05/01/18: Coimbra (Ibis Coimbra Centro) <br>
+05/01/18-06/01/18: Luso (Grande Hotel de Luso) <br>
 
 ### Por onde tem andado os noivos?
 
