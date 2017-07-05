@@ -18,7 +18,9 @@ Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no 
 
 ![Image](http://static.panoramio.com/photos/large/130193712.jpg)
 
-Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a 3,8km da igreja).
+### E a festa?
+
+Não haverá festa. Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a 3,8km da igreja).
 
 ![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Palace_Hotel_do_Bussaco.JPG/1200px-Palace_Hotel_do_Bussaco.JPG)
 
@@ -42,7 +44,7 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Qual o prazo p/ confirmar presença?
 
-30 de julho de 2017. Envie um e-mail p/ tmarzagao@gmail.com ou p/ annacecilia82@hotmail.com
+5 de agosto de 2017. Envie um e-mail p/ tmarzagao@gmail.com ou p/ annacecilia82@hotmail.com
 
 ### Onde encontro a lista de presentes?
 
@@ -51,6 +53,10 @@ Não há. Seu comparecimento é o presente mais desejado dos noivos. Pedimos ape
 ### O que levo na bagagem?
 
 Roupas de frio. Em janeiro a temperatura em Aveiro costuma variar entre 6,3°C e 14,4°C. Neve e temperaturas negativas são possíveis.
+
+### Quando recebo o convite?
+
+Você já o recebeu - é este site aqui. Não haverá convite impresso. Se os noivos te enviaram o link p/ este site, você está convidado.
 
 ### Onde estarão os noivos?
 
