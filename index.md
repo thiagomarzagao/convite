@@ -60,7 +60,7 @@ Você já o recebeu - é este site aqui. Não haverá convite impresso. Se os no
 
 ### Onde estarão os noivos?
 
-Chegaremos em Portugal dia 31/12 e vamos passear um pouco pelo país antes do casamento. Quem quiser se juntar a nós será muito bem-vido!
+Chegaremos em Portugal dia 31/12 e vamos passear um pouco pelo país antes do casamento. Quem quiser se juntar a nós será muito bem-vindo!
 
 31/12/17-03/01/18: Lisboa (Ibis Lisboa Liberdade) <br>
 03/01/18-05/01/18: Coimbra (Ibis Coimbra Centro) <br>
