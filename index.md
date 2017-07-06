@@ -44,7 +44,7 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Qual o prazo p/ confirmar presença?
 
-5 de agosto de 2017. Envie um e-mail p/ tmarzagao@gmail.com ou p/ annacecilia82@hotmail.com
+20 de setembro de 2017. Envie um e-mail p/ tmarzagao@gmail.com ou p/ annacecilia82@hotmail.com
 
 ### Onde encontro a lista de presentes?
 
