@@ -62,13 +62,13 @@ Você já o recebeu - é este site aqui. Não haverá convite impresso. Se os no
 
 Chegaremos em Portugal dia 31/12 e vamos passear um pouco pelo país antes do casamento. Quem quiser se juntar a nós será muito bem-vindo!
 
-31/12/17-03/01/18: Lisboa (Ibis Lisboa Liberdade) <br>
-03/01/18-05/01/18: Coimbra (Ibis Coimbra Centro) <br>
-05/01/18-06/01/18: Luso (Grande Hotel de Luso) <br>
+31/12/17 - 03/01/18: Lisboa (Ibis Lisboa Liberdade) <br>
+03/01/18 - 05/01/18: Coimbra (Ibis Coimbra Centro) <br>
+05/01/18 - 06/01/18: Luso (Grande Hotel de Luso) <br>
 
-### Por onde tem andado os noivos?
+### O que os noivos têm feito nesses cinco anos?
 
-Por aí.
+Passeado.
 
 ![Image](http://i.imgur.com/yHdGJmi.jpg)
 
