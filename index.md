@@ -6,7 +6,7 @@ Olá! Depois de cinco anos de namoro, primeiro na ponte aérea São Paulo-Columb
 
 ### Quando?
 
-6 de janeiro de 2018.
+6 de janeiro de 2018. Provavelmente de manhã (divulgaremos o horário aqui quando confirmado).
 
 ### Onde?
 
@@ -45,6 +45,10 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 ### Qual o prazo p/ confirmar presença?
 
 20 de setembro de 2017. Envie um e-mail p/ tmarzagao <<at>> gmail.com ou p/ annacecilia82 <<at>> hotmail.com
+  
+### Posso levar acompanhante?
+
+Claro! Basta informar o nome do acompanhante no e-mail de confirmação.
 
 ### Onde encontro a lista de presentes?
 
