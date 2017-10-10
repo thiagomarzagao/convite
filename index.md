@@ -6,27 +6,27 @@ Olá! Depois de cinco anos de namoro, primeiro na ponte aérea São Paulo-Columb
 
 ### Quando?
 
-6 de janeiro de 2018. Provavelmente de manhã (divulgaremos o horário aqui quando confirmado).
+6 de janeiro de 2018, pontualmente às 12:30.
 
 ### Onde?
 
-Vamos nos casar no distrito de Aveiro, em Portugal. É um lugarejo charmoso de 78 mil almas, conhecido pelos barcos moliceiros (esses barcos coloridos aí da foto).
-
-![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Aveiro_-_Portugal_%2816885263852%29.jpg/1200px-Aveiro_-_Portugal_%2816885263852%29.jpg)
-
-Mais especificamente, vamos nos casar na igreja matriz da freguesia do Luso, no município de Mealhada. (Lá em Portugal a divisão administrativa é: freguesia ⊂ município ⊂ distrito).
+Vamos nos casar em Portugal. A cerimônia será na igreja matriz da freguesia do Luso, no município de Mealhada, distrito de Aveiro. (Lá em Portugal a divisão administrativa é: freguesia ⊂ município ⊂ distrito). Fica no centro-norte do país.
 
 ![Image](http://static.panoramio.com/photos/large/130193712.jpg)
 
+A região é famosa pelo leitão à Bairrada, pelos vinhos locais e pelos doces de ovos moles. E a capital do distrito (também chamada Aveiro) é famosa pelos barcos moliceiros (esses barcos coloridos aí da foto).
+
+![Image](https://photos.smugmug.com/Traditional-Art/Moliceiros/i-qZp9PML/0/1e63cd5f/XL/Aveiro-%2020090923%20-%20%206937-XL.jpg)
+
 ### E a festa?
 
-Não haverá festa. Após a cerimônia haverá um almoço na Sala Brasões do [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal) (fica a 3,8km da igreja).
+Não haverá festa. Após a cerimônia haverá um coquetel e um almoço no [Palace Hotel do Bussaco](http://www.almeidahotels.pt/pt/hotel-coimbra-portugal), que fica a apenas 3,8km da igreja. O coquetel será no hall de entrada do palácio e o almoço, servido em seguida, será na Sala Brasões.
 
 ![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Palace_Hotel_do_Bussaco.JPG/1200px-Palace_Hotel_do_Bussaco.JPG)
 
 ### Pq tão longe?
 
-Os avós maternos da noiva nasceram em Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
+Os avós maternos da noiva nasceram no distrito de Aveiro. Vieram para o Brasil em 1927, trabalharam duro e embora já tenham partido servem até hoje de exemplo para a família. Escolhemos Aveiro como uma forma de homenageá-los.
 
 ![Image](http://i.imgur.com/JF5rfDl.png)
 
@@ -44,7 +44,7 @@ Há outras opções em Mealhada, como o [Grande Hotel de Luso](http://www.hotelu
 
 ### Qual o prazo p/ confirmar presença?
 
-20 de setembro de 2017. Envie um e-mail p/ tmarzagao <<at>> gmail.com ou p/ annacecilia82 <<at>> hotmail.com
+1 de novembro de 2017. Envie um e-mail p/ tmarzagao <<at>> gmail.com ou p/ annacecilia82 <<at>> hotmail.com
   
 ### Posso levar acompanhante?
 
