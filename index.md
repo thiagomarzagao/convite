@@ -68,7 +68,7 @@ Chegaremos em Portugal dia 31/12 e vamos passear um pouco pelo país antes do ca
 
 31/12/17 - 03/01/18: Lisboa (Ibis Lisboa Liberdade) <br>
 03/01/18 - 05/01/18: Coimbra (Ibis Coimbra Centro) <br>
-05/01/18 - 06/01/18: Luso (Grande Hotel de Luso) <br>
+05/01/18 - 07/01/18: Luso (Palace Hotel do Bussaco) <br>
 
 ### O que os noivos têm feito nesses cinco anos?
 
